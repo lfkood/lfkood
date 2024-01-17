@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lfkood
-- 👀 I’m interested in ...![kassi pilt](https://pbs.twimg.com/media/GBoNADzaMAA8rO6?format=jpg&name=large =100x)
+- 👀 I’m interested in ...![kassi pilt](https://pbs.twimg.com/media/GBoNADzaMAA8rO6?format=jpg&name=large=100x)
 - 🌱 I’m currently learning ...![kassi pilt](https://pbs.twimg.com/media/GBoNADzaMAA8rO6?format=jpg&name=large)
 - 💞️ I’m looking to collaborate on ...![kassi pilt](https://pbs.twimg.com/media/GBoNADzaMAA8rO6?format=jpg&name=large)
 - 📫 How to reach me ...![kassi pilt](https://pbs.twimg.com/media/GBoNADzaMAA8rO6?format=jpg&name=large)
